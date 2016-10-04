@@ -1,1 +1,1 @@
-# HTML-Article-Mockup-
+# HTML-Article-Mockup
